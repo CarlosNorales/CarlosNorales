@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CarlosNorales
+- 👀 I’m interested in AI
+- 🌱 I’m currently learning manga
+- 📫 How to reach me cnorales76@gmail.com
+- ⚡i like the video games and play whit friends
